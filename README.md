@@ -12,6 +12,6 @@ I drive the executive management, operational architecture, and hands-on technic
 
 #### 🌐 Ecosystem & Links:
 - 🏢 **Agency Showcase & Portfolio:** [Liyano Studio Official Hub](https://tamara-portfolio.notion.site/Tamara-Agha-AI-Evaluation-Arabic-Localization-Lab-39681cdbaac2808ba9a6d534e0c89126?source=copy_link)
-- 📬 **Collaborations & Enterprise Inquiries:** [lilith5tam@gmai]
+- 📬 **Collaborations & Enterprise Inquiries:** [lilith5tam@gmail.com]
 
 
